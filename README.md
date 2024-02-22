@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @yukiyanagiss
-- 👀 I’m interested in ... Windows soft software
+- 👀 I’m interested in ... student
 - 🌱 I’m currently learning ... yes
 - 💞️ I’m looking to collaborate on ... maybe
 - 📫 How to reach me ... maybe you know
